@@ -1,1 +1,0 @@
-# Programmat-ras-test-an-5.-praktiskais-darbs
